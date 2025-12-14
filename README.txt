@@ -1,4 +1,2 @@
 
 stashing ke readme
-
-fUCKKKKKK
