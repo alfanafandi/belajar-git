@@ -1,1 +1,1 @@
-ini fitur baru dari branch
+VERSI LANGSUNG DARI MASTER
